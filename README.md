@@ -40,7 +40,7 @@ I’m open to:
 - 🤝 Building trust step by step
 
 You can contact me by:
-- ✉️ renatoaviper@outook.com
+- ✉️ renatoaviper@outlook.com
 - 📫 LinkedIn: https://www.linkedin.com/in/renato-aviper-ab27a4345/
 - 🌐 GitHub: github.com/renatoaviper
 
